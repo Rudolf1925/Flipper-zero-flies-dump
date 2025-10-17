@@ -1,1 +1,1 @@
-Files i would like to share but also have a place to know where i put them
+Files i gathered and would like to sahre with fellow flipper owners
